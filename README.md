@@ -1,5 +1,5 @@
 # ASSALAMU ALAIKUM 👋
-### I am "ALI ABDULLAH JABER MD BIDYUTH"
+### I am "Ali Abdullah Jaber Md Bidyuth"
 
 <!--
 **Md-Bidyuth/Md-Bidyuth** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
