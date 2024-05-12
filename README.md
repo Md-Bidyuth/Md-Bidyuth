@@ -1,4 +1,4 @@
-# ASSALAMU ALAIKUM 👋
+# Assalamu Alaikum 👋
 ### I am "Ali Abdullah Jaber Md Bidyuth"
 
 <!--
